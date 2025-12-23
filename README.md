@@ -1,0 +1,1 @@
+# party-tambola-privacy-policy
